@@ -1,1 +1,0 @@
-# SHOPBEMAP2
